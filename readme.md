@@ -2,4 +2,4 @@
 # David Flores
 # Lorena Bravo
 # Rodrigo Jirena
-# Leandro Boxler
+# Leandro Boxler / 24 años / Lanus
